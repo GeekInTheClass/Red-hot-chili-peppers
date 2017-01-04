@@ -23,4 +23,4 @@
 
 ##추천곡
 
-Give it away (Blood sugar sex magic 앨범)
+Give it away (Blood sugar sex magik 앨범)
