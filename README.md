@@ -22,3 +22,5 @@
 출생: 1961년 10월 25일
 
 ##추천곡
+
+Give it away (Blood sugar sex magic 앨범)
